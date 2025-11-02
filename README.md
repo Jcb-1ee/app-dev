@@ -1,38 +1,38 @@
-# Avengers: Infinity War
+# Captain America: The Winter Soldier
 
-![Avengers Infinity War Poster](https://upload.wikimedia.org/wikipedia/en/4/4d/Avengers_Infinity_War_poster.jpg)
+![Captain America: The Winter Soldier Poster](https://upload.wikimedia.org/wikipedia/en/9/9b/Captain_America_The_Winter_Soldier_poster.jpg)
 
-**Avengers: Infinity War** is a 2018 superhero film produced by **Marvel Studios** and directed by **Anthony and Joe Russo**. It is part of the **Marvel Cinematic Universe (MCU)**.
-
----
-
-## 🌍 Summary
-As the Avengers and their allies continue to protect the world, a new threat emerges — **Thanos**, a powerful cosmic warlord determined to collect all six **Infinity Stones** and use them to wipe out half of all life in the universe.  
-The heroes must unite to stop him, but their efforts lead to devastating consequences.
+**Captain America: The Winter Soldier** is a 2014 superhero film produced by **Marvel Studios** and directed by **Anthony and Joe Russo**. It is the sequel to *Captain America: The First Avenger* and part of the **Marvel Cinematic Universe (MCU)**.
 
 ---
 
-## 🦸‍♂️ Main Characters
-- **Tony Stark / Iron Man** – *Robert Downey Jr.*  
+## Summary
+After the events of *The Avengers*, **Steve Rogers** struggles to adapt to the modern world while continuing to serve as Captain America. When a S.H.I.E.L.D. colleague is attacked, Steve becomes entangled in a web of conspiracy that threatens global security.  
+With the help of **Black Widow** and **Falcon**, he faces a mysterious assassin known as the **Winter Soldier**.
+
+---
+
+## Main Characters
 - **Steve Rogers / Captain America** – *Chris Evans*  
-- **Thor** – *Chris Hemsworth*  
 - **Natasha Romanoff / Black Widow** – *Scarlett Johansson*  
-- **Thanos** – *Josh Brolin*  
+- **Sam Wilson / Falcon** – *Anthony Mackie*  
+- **Nick Fury** – *Samuel L. Jackson*  
+- **Bucky Barnes / Winter Soldier** – *Sebastian Stan*  
 
 ---
 
-## 💬 Favorite Quote
-> "Perfectly balanced, as all things should be." – Thanos
+## Favorite Quote
+> “The price of freedom is high... and it's a price I'm willing to pay.” – Steve Rogers
 
 ---
 
-## 💥 Why I Like It
-1. Epic crossover of multiple Marvel heroes  
-2. Emotional storytelling and intense action scenes  
-3. Powerful villain with a meaningful motive  
-4. Shocking cliffhanger and unforgettable ending  
+## Why I Like It
+1. Strong political thriller theme within the superhero genre  
+2. Amazing hand-to-hand combat and action scenes  
+3. Deep character development for both Steve and Bucky  
+4. Great mix of emotion, betrayal, and loyalty  
 
 ---
 
 ### 🎬 Watch the Trailer
-[Avengers: Infinity War (Official Trailer)](https://www.youtube.com/watch?v=6ZfuNTqbHE8)
+[Captain America: The Winter Soldier (Official Trailer)](https://www.youtube.com/watch?v=7SlILk2WMTI)
